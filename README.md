@@ -1,4 +1,4 @@
-_Facebook account has been deleted :(
+_Your account has been deleted :(
  
    _All your personal iformation was posted to all the world
 
